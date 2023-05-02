@@ -7,6 +7,7 @@
 
 - 4 Tbsp white chocolate chips or chopped white chocolate
 - 1 shot Espresso Roast
+- 1 cup almond milk
 - 1 cup whole milk
 - Whipped cream
 
@@ -26,6 +27,7 @@
 
 ### Step 4
 
+- Froth almond milk using your preferred method.
 - Froth whole milk using your preferred method.
 
 ### Step 5
